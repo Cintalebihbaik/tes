@@ -17,11 +17,11 @@ return `PAYMENT BY ZEEONE OFC
 1. GOPAY
 	ㅁ 0887 4350 47326
 2. OVO
-	ㅁ 0887 4350 47326
+	ㅁ 0812 7527 4328
 3. DANA
-	ㅁ 0887 4350 47326
+	ㅁ 0812 7527 4328
 	
-Semuanya atas nama RI****DI
+Semuanya atas nama Yu..l
 
 *📲 PULSA*
 
